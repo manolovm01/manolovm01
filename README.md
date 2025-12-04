@@ -9,6 +9,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on biology project
 - 🤔 I’m looking for help with RStudio
 - 💬 Ask me about whatever you want
-- 📫 How to reach me: nope
+- 📫 How to reach me: b02vamom@uco.es
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I love dinosaurs
+- ⚡ Fun fact: I love One Piece
